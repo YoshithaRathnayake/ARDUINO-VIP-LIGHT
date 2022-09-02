@@ -26,7 +26,9 @@
 
 
 ### Video Clip
-#    
-> Still not uploaded!
+#
+https://user-images.githubusercontent.com/97069900/188176333-759fe7b5-8582-4b50-948c-ab2f1448c39a.mp4
+
+
 
 
